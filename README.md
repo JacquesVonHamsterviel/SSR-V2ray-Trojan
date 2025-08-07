@@ -42,11 +42,11 @@ Linux：Shell clash（命令行）、Mihomo-Party、clash-verge-rev和FLClash的
 移动联通电信三网深港IEPL内网专线ss协议机场，小众精品机场。三网IEPL,可以解决目前跨网限速的问题。对于各个运营商的网络都比较友好。如果是单网特别是移动IEPL其它运营商可能体验不佳，相对低调。人少，体验还不错,速度很快，延迟较低，稳定性不错，流媒体还可以。老板说是一线机场发展的。有118一年200G的可以做备用。新人8折优惠券：boost
 
 
-[BoostNet机场官网地址1](https://boostqz.com?path=register&code=Pj4Wrfai)  
+[BoostNet机场官网地址1](https://boostqz.com?path=register)  
 
-[BoostNet机场官网地址2](https://boostnet1.com/#/register?code=Pj4Wrfai)  
+[BoostNet机场官网地址2](https://boostnet1.com/#/register)  
 
-[BoostNet机场官网地址2](https://boostnet2.com/#/register?code=Pj4Wrfai)  
+[BoostNet机场官网地址2](https://boostnet2.com/#/register)  
 
 
 >开业时间：2024  
@@ -95,13 +95,13 @@ TG频道：无
 电信入口IEPL专线+隧道中转SS协议机场，过境大带宽。电信入口各个运营商的网络都比较友好，比移动入口好。比较低调。体验可以，稳定性和速度都不错，流媒体解锁得也不错。后端负载均衡。有120一年200G可以做备用。老板人不错。多个入口和过境，不用担心一个入口挂了全都没得用了，安心。他家动态倍率，日常可以使用隧道，倍率较低。8折优惠码：888，每个用户仅限使用一次。
 
 
-[悠兔机场官网地址1](https://youtunice.com?path=register&code=3CxiqyOc)     
+[悠兔机场官网地址1](https://youtunice.com?path=register)     
 
-[悠兔机场官网地址2](https://youtu0.com?path=register&code=3CxiqyOc)     
+[悠兔机场官网地址2](https://youtu0.com?path=register)     
 
-[悠兔机场官网地址3](https://youtu6.shop/register?aff=3CxiqyOc) 
+[悠兔机场官网地址3](https://youtu6.shop/register) 
 
-[悠兔机场官网地址4](https://youtu7.shop/register?aff=3CxiqyOc)     
+[悠兔机场官网地址4](https://youtu7.shop/register)     
 
 
 机场官网是很容易被污染的，打不开使用全局代理，下面所有机场官网都是。
@@ -160,7 +160,7 @@ TG频道：有；无群
 
 [WgetCloud机场官网](https://reurl.cc/dmamKD)    
 
-[WgetCloud官网链接2](https://invite.wgetcloud.ltd/auth/register?code=n7z3)    
+[WgetCloud官网链接2](https://invite.wgetcloud.ltd/auth/register?code=)    
 
 
 
@@ -220,7 +220,7 @@ IEPL专线中转SS协议机场
 观察这家很多年了也，从测速记录也可以看得到，一直在升级线路，节点也越来越多。TG里面也是很出名的存在，以节点多著名。TG机场圈子里面评价也很不错，大家常推荐的机场。
 154块/一年的很适合做备用或者是轻度使用用户。
 
-[TAG机场官网](https://honven.dedicated-afflink.com/#/auth/AJCjBhsw)
+[TAG机场官网](https://honven.dedicated-afflink.com/#/auth)
    
 >开业时间：2018         
 老板肉身：香港(确定)         
@@ -266,11 +266,11 @@ TG频道和交流群：官网指导进入，关注人数1万+；群需要绑定�
 
 SS协议中转机场，多隧道入口机场。不用担心完全失联，稳定性也不错。单条带宽不大但是足够使用，适合不想人太多的，速度不错，性价比高。95折优惠码,只能使用一次： beibei.cloud     
 
-[贝贝云机场官网地址1](https://beibeicloud.shop/#/register?code=qwqDFEUW)
+[贝贝云机场官网地址1](https://beibeicloud.shop/#/register?code=)
 
-[贝贝云机场官网地址2](https://beibeilink.top/#/register?code=qwqDFEUW)
+[贝贝云机场官网地址2](https://beibeilink.top/#/register?code=)
 
-[贝贝云机场官网永久地址](https://beibei.cloud?path=register&code=qwqDFEUW)
+[贝贝云机场官网永久地址](https://beibei.cloud?path=register&code=)
 
 >开业时间：2022       
 老板肉身：墙外      
@@ -364,9 +364,9 @@ Team2 | 2T/月 | 885/季度
 ## 七、海獭(25/季50G)
 trojan协议三线入口隧道公网中转机场。 带宽日常足够，速度很不错。但是奈飞和迪士尼、chatgpt都有解锁。中转带宽很大。 目前是大陆中部入口，这样全国的使用的比较平衡。  85折优惠码：pN02HX5n
  
-[Haita机场官网地址](https://haita.link/register?aff=VQq8ZO5j)
+[Haita机场官网地址](https://haita.link/register?aff=)
 
-[Haita机场官网地址](https://honven20.haitacdn.com/register?aff=VQq8ZO5j)  
+[Haita机场官网地址](https://honven20.haitacdn.com/register?aff=)  
 
 >开业时间：2023.11         
 过境: 公网中转        
@@ -404,7 +404,7 @@ totorocloud，中转trojan机场。观察挺久，感觉速度都挺好。观察
 
 注意：speedcat、龙猫云、Flyingbird、一云梯是相同线路类型。别买重复了。
 
-[龙猫云机场官网地址](https://jctj02.lmvipaff03.cc/#/register?code=Qb502cPh)
+[龙猫云机场官网地址](https://jctj02.lmvipaff03.cc/#/register?code=)
 
 
 >开业时间：2022   
@@ -447,7 +447,7 @@ TG电报频道：机场官网，关注人数：1000+;群禁言
 
 IEPL专线机场，老猫云机场之前旧机场主不做了，被新老板接管了，两个老板应该是认识的。流媒体解锁不错。    还是一如既往比较宽松，各种限制不多。   
 
-[老猫云官网](https://laomao.biz/?path=register&code=i0Vv9N5R)
+[老猫云官网](https://laomao.biz/?path=register&code=)
 
 
 >开业时间：主站是2017年开的老牌机场，很少开了7年的机场  
@@ -490,7 +490,7 @@ IEPL专线+隧道中转机场 ，SSR + Vmess协议，老板在香港，有按量
 优点：剩余带宽很足够。老板在墙外。很耐活，也好多年了。比较低调。有按量付费，比较适合需要按量付费的用户。
   
 
-[STC机场官网](https://acidrate.stc-spare1.com/auth/register?code=4k1L) 
+[STC机场官网](https://acidrate.stc-spare1.com/auth/register?code=) 
 
 
 >老板肉身：香港   
@@ -529,7 +529,7 @@ SSH端口屏蔽：未屏蔽22端口
 
 ## 十一、E-IX(199/月1T/年)
 深圳三线入口IEPl专线（香港+新加坡+台湾）+上海ucloud专线（日本美国）+北京ucloud专线（欧洲方向）机场，台湾机场老板。有几年的机场经验。线路一流，多个专线入口，每个入口带宽都还不错。流媒体解锁也不错。高端线路机场。 有新疆用户套餐。
-[E-IX官网](https://cdn12.e-ix.com/#/register?code=Aon7FQ85)
+[E-IX官网](https://cdn12.e-ix.com/#/register?code=)
 
 >开业时间：2025 
 老板肉身：台湾 
@@ -653,9 +653,9 @@ vip3:800G/月| 880/年
 
 IPLC专线非常稳定，直连线路被封会免费秒换ip。反正搬瓦工自己有大量ip。建议根据自己使用的网络运营商测试。实在不好用就开工单退款，英文不会写就谷歌翻译。         
 
-[Just my sock机场官网注册地址](https://justmysocks3.net/members/aff.php?aff=3207)
+[Just my sock机场官网注册地址](https://justmysocks3.net/members/aff.php?aff=)
 
-[Just my sock机场官网注册地址2](https://justmysocks6.net/members/aff.php?aff=3207)
+[Just my sock机场官网注册地址2](https://justmysocks6.net/members/aff.php?aff=)
 
 >专线: 有         
 落地：香港、日本、美国         
@@ -730,7 +730,7 @@ YYDS,除了贵没有缺点。自建就买好的，要不然慢得话不如机场
 3年老机场了。Vmess+Trojan中转线路机场。机场主在东南亚，不用担心跑路。稳定还是稳定的。在我监督下 ，更换了机器，测速好看了。单条2G带宽起。
 
 
-[大哥云机场官网链接](https://honven20.dgywzc.com/#/register?code=lEHKtVDi) 
+[大哥云机场官网链接](https://honven20.dgywzc.com/#/register?code=) 
 
 >开业时间：2020         
 老板肉身：东南亚         
